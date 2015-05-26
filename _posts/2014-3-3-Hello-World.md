@@ -11,10 +11,14 @@ Rose dating agency is one of the most reputable dating agencies for professional
 
 Highlights of Dating Agency Membership
 1. All dating agency members have an initial interview with a representative of Rose Dating Agency for a minimum of one hour to capture your personality and the personality of the person you wish to meet.
+
 2. This is NOT Online Dating; This is a unique,individual,tailor made service built around you!
+
 3. Fast Track to that special someone!
+
 4. You will have direct contact with introductions!
 5. All members are known to our professional team-this is a very safe way to meet!
+
 6. We shall continue to send introductions to you until you advise us that you have found your perfect partner.(VIP ONLY)
 7. Your own designated consultant will work personally on your behalf and assist you every step of the way!
 8. You can contact our team of experts -we are with you every step of the way!
