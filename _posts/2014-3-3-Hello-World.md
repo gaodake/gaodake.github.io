@@ -17,10 +17,13 @@ Highlights of Dating Agency Membership
 3. Fast Track to that special someone!
 
 4. You will have direct contact with introductions!
+
 5. All members are known to our professional team-this is a very safe way to meet!
 
 6. We shall continue to send introductions to you until you advise us that you have found your perfect partner.(VIP ONLY)
+
 7. Your own designated consultant will work personally on your behalf and assist you every step of the way!
+
 8. You can contact our team of experts -we are with you every step of the way!
 
 If you're newly single and wondering why it seems so difficult to meet new people and start dating again, it can be hard to know where to start. The advantage of Rose Dating Agency is that we know you and our other agency members,and have a clear picture of what you're seeking. There is no better way to meet interesting,suitable people and expand your social life than with our dating agency services.
